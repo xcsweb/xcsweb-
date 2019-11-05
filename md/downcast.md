@@ -1,0 +1,7 @@
+---
+title: downcast
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+<p>&#xA0;&#xA0; Downcast day, with slight gray clouds and pale blue sky, reflects the scene with a tint of suspension. The breeze brings the fresh air flipping your round and seems to slow down your pace towards the world.</p><p>&#xA0;&#xA0; I am not sure from when that i appreciate this kind of time slow suspension, take my time not hurried to act on sth, the view deeper in the eye and softness laying inside.</p><p>&#xA0;&#xA0;&#xA0; Street dancing, the turn-up volumn, slow-paced lyrics&#xA0;showcasing the agreeableness of the people in their 40-60. Their leisured life style swaying with the surroudings to form the unique corner which&#xA0;had your mind suspended and tranquiled. That piece of freedom is i envy, but the reality is unaffordable to tamed me.</p><p>&#xA0;&#xA0;&#xA0; Just like you walk into a film clip in which you downplay everything on purpose and empty wants, all is that let it be, that kind of lightness like a flying feather staggering into all possibility and the end landing on the ground is inevitable. I wish that period could be prolonged and prolonged, the languid body, faint mind destined rest there.</p><p>&#xA0;&#xA0;&#xA0; At last, it ends like the world, time never suspended, it is just pure over.</p>

@@ -1,0 +1,7 @@
+---
+title: weirdness
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+<p>&#xA0;&#xA0;&#xA0; I, on bed, with closed eye in stark contrast with extreme detective hearing, failed to adjust the pose into asleep. I hearing crickets singing, car`s wheels rolling over the road,&#xA0;objective existings with a piece of bemusement.</p><p>&#xA0;&#xA0;&#xA0; I depressed, a black hole lurking in my brain, have not been filled with, yes, the new knowledge. I do not know whether&#xA0;it stems from an kind of society anxiety or just as simply as an used habit. </p><p>&#xA0;&#xA0; The absorbed new knowledge daytime, sucked my energy, dismayed my confidence&#xA0;and at last with the end of the day triggering the brain to rest.</p><p>&#xA0;&#xA0;&#xA0; Once i tried to study before sleeping, but it`s&#xA0;not in my favor, following bizarre dreams not fit my appetite.</p><p>&#xA0;&#xA0;&#xA0; I am surrounded by new knowledge, priorize them and&#xA0;every time dig deeper more&#xA0;compound i find, so i have come to peace. The&#xA0;tip of the&#xA0;iceberg,&#xA0;one water of the sea, what&#xA0;you explored only&#xA0;witness where once your were and the changings, overwhelmingly push you here and there without your proactive. We are just a negligible sand in the era, be yourself is never a easy thing to prove.</p><p>&#xA0;&#xA0;&#xA0; Good morning, and fill my soul seems plausible right daytime.</p>

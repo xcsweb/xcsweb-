@@ -1,0 +1,88 @@
+---
+title: Black out
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" .="" face="Comic Sans MS">I was getting
+drunk without actually drinking alcohol and it was not any slightly tipsy, but
+that totally blank-out, memory loss, complete kind of drunk. It was very bizarre,
+really. </font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">&#xA0;</font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">Before I
+went to the hospital for my fifth chemotherapy, I took ten tablets of DXMS as
+usually. But when I arrived at the hospital, I started to feel lightheaded. And
+it was getting worse by the minutes.</font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">&#xA0;</font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">Soon I fell
+into the state of dissociation, in which the whole world seemed to be dreamlike
+and unreal. <span .="mso-spacerun:yes">&#xA0;</span></font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">&#xA0;</font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">The
+following day was cut into many tiny pieces, and I only got some of the
+fragments, but most of them had blended and lost in the foggy memories of my
+mind. </font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">&#xA0;</font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">I kind
+of remembered that I could not walk the straight line when I came down to take
+my targeted drugs. I almost lost balance and bumped into the staff from
+Sinopham. </font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">And
+then there was so many people getting in line for the next elevator. Just the
+thought of joining them and cramming myself into a tiny, over-crowded place
+made me even more light headed, so I decided to climb the stairs. </font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">&#xA0;</font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">I
+couldn&#x2019;t make it. I slipped on the way and fell down from the stairs. I remembered
+a doctor rushed to me and helped me up. But I couldn&#x2019;t remember clearly about her
+face. She might ask for help, because there were a few more doctors coming
+after that. </font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">&#xA0;</font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">What
+happened next was a blur, disconnected and unreal. When I looked back, I had to
+think really hard to rescue some wrecks of my memories from this sinking ship. </font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">&#xA0;</font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">How
+they called my husband, when my parents came to the hospital, how did they take
+me to get a brain scan---I had no memory of these things. </font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">&#xA0;</font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">My
+husband even had to sign a high-risk notification! </font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">&#xA0;</font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">I slept
+on and off but even I woke up, I was still in a dreamlike situation. But even
+under such situation, I somehow managed to finish my reading notes&#x2014;what kind of
+obsessive person I am!</font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">&#xA0;</font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .=""><font size="4" face="Comic Sans MS" .="">The
+only possible explanation for this bizarre&#xA0;situation is that I probably took
+ten sleeping tablets instead of DXMS---I was in a kind of hurry, and these two
+look very similar. </font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" face="Comic Sans MS">&#xA0;</font></span></p>
+
+<p .="MsoNormal"><span lang="EN-US" .="color: black;"><font size="4" .="" face="Comic Sans MS">I was
+lucky that I didn&apos;t get myself seriously injured. My cancer has already transferred
+to my bones, so my bones break easily. Somehow when I fell down from the floor,
+I just got some blues. That&#x2019;s almost a miracle. </font><span .="font-family: " helvetica="" neue";="" font-size:="" 13pt;"=""></span></span></p>

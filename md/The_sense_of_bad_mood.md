@@ -1,0 +1,11 @@
+---
+title: The sense of bad mood
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+<font face="Times New Roman" size="3">
+
+</font><span lang="EN-US" .="font-size: 15pt;"><font face="Calibri"><p id="p_1"><span id="s_0">&#xA0;&#xA0;&#xA0;&#xA0; As plan, I will be on the short vacation from this Friday to next Monday, but, since this morning, I continue to pick up the phone call even I have to come back to company on this weekend, I really lost my temper, I have to follow up my boss&apos;s instruction to work overtime during his weekend.</span><span id="s_1"> It&apos;s no choice, because I currently need this job and can&apos;t lose it.</span><span id="s_2"> Recently, I deeply found as the growth of age, I need consider a lot before I make any decision.</span><span id="s_3"> I no longer make a decision just by myself.</span><span id="s_4"> It&apos;s just as the old saying, if you can&apos;t change the world and change yourself.</span><span id="s_5"> Absolutely, I don&apos;t think I am a powerful man or excellent man, most of something, I can&apos;t refuse because I lack enough power just like today, even I already completely spoiled by my boss&apos;s instruction, but I have to follow up no matter how reluctant I am.</span><span id="s_6"> Meanwhile, I must adjust myself in good mood presenting in front of him.</span><span id="s_7"> Maybe, today I met just a piece of cake to some guys, but, for me it will cost some time to digest, sometimes, I also told myself that I can&apos;t too attached for one thing, if I don&apos;t want to live very hard.</span></p><p id="p_2"><span id="s_8">&#xA0;&#xA0;&#xA0;&#xA0;&#xA0; Anyway, I think I should go outside for a walk to dispel the feeling of bad mood, because I will face another busy week from tomorrow. </span><span id="s_9">Let&apos;s hope it is not too bad week-</span></p></font><p align="left" .="margin: 0cm 0cm 0pt; text-align: left; text-indent: 22.5pt; mso-char-indent-count: 1.5; mso-pagination: widow-orphan;"><br></p></span><p align="left" .="margin: 0cm 0cm 0pt; text-align: left; text-indent: 22.5pt; mso-char-indent-count: 1.5; mso-pagination: widow-orphan;"><br></p><font face="Times New Roman" size="3">
+
+</font>

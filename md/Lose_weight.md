@@ -1,0 +1,7 @@
+---
+title: Lose weight
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+<div><font size="3"><font face="Verdana">This morning I weighed myself and the scale turned out to be at 70kg. Because of regular workout, I am getting thinner. Meanwhile, I keep diet and eat more vegs and less meat, particular the pork which is, of course, now with high price that many people can not afford. Anyway, the point is good health lies in physical activity and reasonable diet. <br></font></font></div><div><font size="3"><font face="Verdana"><br></font></font></div><div><font size="3"><font face="Verdana">On account of the improvement of life quality, we have better conditions and find out the hardship of weight-losing. Every time, after festivals, we are likely to put on pounds of fat. While it is not easy to burn the fat. Being a coach potato is such an easy thing, when it comes to exercises, we are not willing to go out and sweat a lot. Later, the obesity is to come to us.</font></font></div><div><font size="3"><font face="Verdana"><br></font></font></div><div><font size="3"><font face="Verdana">If you want to lose weight, just go and do it. By drinking more water in the process of workout, it effectively burns the fat throughout the body. You will feel happier and healthier and you looks younger. </font></font><font size="3"><font face="Verdana"><font size="3"><font face="Verdana">Life lies in movement.</font></font></font></font></div>

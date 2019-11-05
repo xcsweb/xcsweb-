@@ -1,0 +1,11 @@
+---
+title: Hope
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+<font face="Times New Roman" size="3">
+
+</font><p align="left" .="margin: 0cm 0cm 0pt; text-align: left; text-indent: 22.5pt; mso-char-indent-count: 1.5; mso-pagination: widow-orphan;"><span lang="EN-US" .="font-size: 15pt;"><font face="Calibri"><span id="s_0">Before I start another round busy work, I finally have a short free time to write down something regarding my daily work, to be frank, during the past several weeks, I did extremely busy hour even I wanted to quit job immediately.</span><span id="s_1"> But, my sanity tells me that I can&apos;t do this.</span><span id="s_2"> Not only I haven&apos;t enough ability to go outside to pursue new career, but I scare if I fail to find a new job in a short time.</span><span id="s_3"> So I have to hang in there until a better opportunity appears.</span><span id="s_4"> As we knew, each company has their own problems.</span><span id="s_5"> We actually did is to try to adapt it and involved current environment and never tried to change your surroundings especially never tried to challenge current culture in company, because it will be very dangerous.</span><span id="s_6"> Anyway, no matter how terrible the working environment is, at least, there is good news to us due to getting a raise finally realized today.</span><span id="s_7"> Even though it never reached our expectations.</span><span id="s_8"> But, it&apos;s better than nothing and maybe it was the only thing that made me happy.</span><span id="s_9"> On one hand, the tons of workload are getting on my shoulder, that means I will become busy than before, on another hand, I don&apos;t think I can stick here for longer time, I should consider whether it is a time to seek a better position or changer my job outside, because it is clear to me under current working environment, I no longer keep my passion with bad paid.</span><span id="s_10"> I need well paid to stimulate my passion and I hope I can find a better job at the end of this year.</span></font></span></p><font face="Times New Roman" size="3">
+
+</font>

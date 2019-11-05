@@ -2,6 +2,11 @@
   "name": "hexo-site",
   "version": "0.0.0",
   "private": true,
+  "scripts": {
+    "start": "hexo server",
+    "new": "hexo new",
+    "create": "hexo generate"
+  },
   "hexo": {
     "version": "3.7.1"
   },
@@ -17,6 +22,7 @@
     "hexo-renderer-jade": "^0.4.1",
     "hexo-renderer-marked": "^0.3.0",
     "hexo-renderer-stylus": "^0.3.3",
-    "hexo-server": "^0.2.0"
+    "hexo-server": "^0.2.0",
+    "superagent": "^5.1.0"
   }
 }
