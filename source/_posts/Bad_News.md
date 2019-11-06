@@ -1,0 +1,7 @@
+---
+title: Bad News
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+    It is really a disappointed announcement that big boss announced in monthly communication meeting today. Of course, the disappointed news that the pay rise will be cancelled temporary which should be scheduled in Feb. as to whether have the opportunity of salary increase will depend on sales in the first half of this year, that means the best result is to gain a pay rise in the second half of this year. According to current latest forecast, the sales of first quarter will shrink by 25% compared with the same period last year, what's more, there is no sign of improvement in current market conditions. I don't know whether other industries existed in similar situation, at least in automotive electronics industry, this depression will continue for some time. No doubt the strict measure of compressing expenditure will be followed up if the situation continues to second quarter, a series of activities such as yearly travel, yearly family day and monthly dinner party will be stopped. I can't imagine how result will happen if the sluggish in industry lasts until the end of this year. From the positive aspect, current situation will improve in the following months even we actually don't know what will happen in automotive industry.    Hopefully, everything can go back on track, the tough time can go through quickly, after all, we all will become the victim when suffering the business depression.

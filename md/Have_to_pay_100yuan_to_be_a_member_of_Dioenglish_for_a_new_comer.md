@@ -1,0 +1,7 @@
+---
+title: Have to pay 100yuan to be a member of Dioenglish for a new comer
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+      The dioenglish is excellent platform for practicing our written English. All the members are the English learners or lovers. There are not many ads or other irrelevants contents here.  We can write down our life and thought with a blog or a mini blog, And we can share that with our friends here. I love it very much,  athough there are still have some problem.      I signed to be a member for many years, and I always recommened the Dioenglish to my colleagues and friends.  But I found they have to pay 100yuan to be a member for new comers now.  I know it's not easy to run such a website. But it's strange to be a number with money in China. After all, there are not too many contents have to pay for the copyright in the website.  The 100 yuan will keep a lot of English lovers out of the webset.  More members will help the website growing better.  Some ads is OK for me to cover the cost of the website.       There are more and more english lovers will want to be a member of the website according with the english studying upsurge.  A free membership maybe a better choice.  Hope the website have a better future and last foever.

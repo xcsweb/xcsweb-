@@ -1,0 +1,7 @@
+---
+title: Learning English
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+Good evening.Ladies and gentleman.Here is my answers about how to learn English well.To learn English well, first you need to understand why you want to learn English. There are many answers to this question. It doesn't matter what the answer is. What matters is what you learn for. &nbsp;You can learn a thing well only if you with purpose. With a clear purpose In mind，a good learning method can make you get twice the result with half the effort. Everyone is a different person. The same method can't be suitable for everyone. As for how to find a good landing method. This is something you need to explore in your life.What suits others may not suit you. Nothing is better than what suits you. Of course having a good learning method may not be able to truly learn English well.In other words，you may know a lot of words.But you can't use it fluently. Therefore, we need to create an English atmosphere in our life.For example,we can change the system of phones or computers into English.It help us to use English In our lives.There are,of cause,many more.When we apply what we have learned to our lives,we can truly learn English.This is my stupid opinion.Thank you.

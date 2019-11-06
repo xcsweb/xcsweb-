@@ -1,0 +1,7 @@
+---
+title: First working day after annual travel
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+    Today is the first working day after annual travel in Beijing, most of us feel tired because of can't sleep well. As everybody knows, we must obey general regulation such as collective activity. Taking at least a group photo is necessary, of course, keeping on this culture is one of welfare to us especially in economic downturn outside. What's more, the pay raise of this year finally is fixed today and it will be presented in next month salary. For us, it's really a good new, because it's everybody expected. Currently, I am not sure how percent can increase this year, but, no matter how percent can be given, it's always better than nothing. I also believe if we failed to pay raise this year that means a large group of people will be left here at the beginning of next year. As one of corporate culture, we are always shorthanded, in a word, we must have the ability to take multitasks at the same time. On one hand, we can learn a lot than other company, on the other hand, we can't do a very good performance on one case even it's very important case.The actual situation is not allowed to focus on one case for a long time. Absolutely, to earn the salary is not an easy job, we have to sustain big pressure from the internal or external.    So, I told myself if I no longer can't bear the stress around me one day, I have to prepare a backup before quitting job here.But, also I hope I can insist in there for longer time

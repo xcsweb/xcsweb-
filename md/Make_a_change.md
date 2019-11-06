@@ -1,0 +1,7 @@
+---
+title: Make a change
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+    I should be happy every day instead of unhappy these days, why not present a positive attitude to work and life even though life is always tough. I usually felt upset during the past weeks, even I don't feel like doing anything especially in daily work. But, when I calm down, I don't think it's necessary to be angry with someone regrading something. The pressure is always existence in working, I need learn to balance it between working and life. Some pressure from inside, because I am not enough powerful to deal with tricky things and also some pressure from outside that is caused by objective cause that I can do nothing about it. As the growth of age, I find myself has a tendency to solidify and don't want to learn something new. One of my weakness is to keep in my comfort zone and never has the desire to do something each day that moves out of my comfort zone to improve myself. I know if I keep this mind continually, I will put myself into very dangerous situation, because, the outsider environment is full of competition. I will be obsolete quickly if I still don't want to try something new.    I hope I can get a good performance not only in working but in my daily life. From this time, I should open my mind to try accepting and learning for better life tomorrow.

@@ -1,0 +1,7 @@
+---
+title: What if we got no phones
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+"Please be careful, no leaning and do not look at the phone." The speaker nearby an escalator in the subway station is playing loudly. Many still stare at their phones and do not give much attention on the news from the broadcast. Everything seems to be normal and nature. This scene could be found almost everywhere repeatedly performing everyday. When we are involved in phones, it is no room for talk between persons anymore. Instead, we'd like communicating from phones. Putting away phones, there could be nothing. For most ones they even find it hard to greet a single word face to face, such as HEY and HOW IS IT GOING?An inappropriate metaphor is we are caged and isolated from the outside world. Much time is occupied by the phone and the focus of inner mind is likely to evolve into sensitivity and anxiety. Supposing you almost get the phone running out of power and you are about to scan a QR code to pay the bill. What do you feel then? You might feel uneasy. Because you have not kept some cashes. Right, the cashless payment is today's trending. Meanwhile without a phone we can hardly do anything. We can not read news, connect friends and are not able to get access to online shopping. A quiet guy may be active and good at gossiping on WeChat. While in reality, he or she acts like another person you do not know.

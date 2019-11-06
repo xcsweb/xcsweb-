@@ -1,0 +1,7 @@
+---
+title: Keep on going
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+    Finally, I can have a short break after a whole overloaded working with the team, I have to say it is not an easy job taking the responsibility of the new project. Especially, when I talked with customer face to face, it still is a challenge for me to hear every word from customer so that I felt a little awkward when I can't totally understand what they said. Currently, I think I can express my though with simple words by email, but, I still have a problem with speaking and listening especially it comes to listening. It's my painful at current stage that it needs to improve in the following step and I hope I can do better and better. As the leader of the new project, I encounter another problem that I need to spend more energy for communication with others and coordinate the relationship between them, what's more, some guys are not always easy to get along with even they don't care about the project in a way. I think the communication skill is also my shortcoming than others.    Anyway, at the end of this year, I have no room back on this case, I told myself I have to stick to this way and try to keep on going.

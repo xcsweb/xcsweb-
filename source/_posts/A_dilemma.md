@@ -1,0 +1,7 @@
+---
+title: A dilemma
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+I've really fallen into a dilemma-- where to tackle my dinner?&lt;div&gt;&amp;nbsp;To do my own cooking, things will get easier, and situation smoother. I no longer have to feel oppressed whenever setting foot into that house, and no longer have to fear at the thought of when I should hear their barbs or imply, or bother to wonder whether it's my turn to do the washing. The problem lies in who to take over the house duty. Their view is that they are old enough to prolong and go easy with their lives, while I strongly hold that as parents they should support us, especially when the working pressure is getting intense nowadays. I do not mean to escape my duty here. what they need to do is just to prepare the three meals&lt;/div&gt;&lt;div&gt;&amp;nbsp;But Mom always tells me not to. To tell the truth, I can't understand why she insist so strongly. As she says. it's because we are poor now and need a certain accumulation for the family survival, and that we are planning to have a baby to have an independent atom family. I should have to give up my time and dream of successful career.&lt;/div&gt;&lt;div&gt;&amp;nbsp;What's more, it's said that there is always truth in the elders' sayings. So, I put up with it and take it.&lt;/div&gt;

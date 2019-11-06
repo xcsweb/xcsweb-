@@ -1,0 +1,7 @@
+---
+title: Complaint and the No complaint World2
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+Follow the last one.A roomate of mine "complaint" on my personality on a dinner together. I took the following words as  self-mitigation: Sometimes, we tend to pour our most unfriendly and impatient words what is called complaints on the closest person we have. Nevertheless, I still felt depressed for I cherish our reationship a lot. Maybe we just use the sentences of manipulating others sense to validate ourselves independence, fancinating and charming. I can't take it right.When Dad shouts to Mom on idolence and dirty, followed by Mom grumbles to me over Dad's male chauvinism and selfish; When someone sit behind scolds on phone about why cannot skip those classes in the day before Tomb sweeping Day's holiday with a big temper; then night fall, girls hide themself in toliet, having an argument in low voices with tears which actually wake the whole floor's sleepness. I was watching the ceiling and promissed to my self: I would introduce the book of No Complaint World to she the next morning.I never put that into truth. All I could do is to hear those complaint with sympsthy and remember to make comfort. Besides, think of the ugly purple gracelace on wrists in case I let those hurting phrases out of my mouth without conciousness.

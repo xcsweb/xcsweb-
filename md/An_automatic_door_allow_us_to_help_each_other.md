@@ -1,0 +1,7 @@
+---
+title: An automatic door allow us to help each other
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+    There are an automatic door in my community entrance for safety. We have to swip the identity card to open the door which in order to fobid outsides entry.  It also bring us inconvenience to us although the intentions is good.  We have to stop to find the identity card and swip to enter,  that's terrible experience when I take many things in my hand or wear a thick gloves and riding a e-bike.  The door will closed in less than half minutes,  we always worried it will closed suddenly and hit us.      That must be some ways to improve the doors.      But I found an interesting thing in the other hand.  The door will keep open if you cover the sensors of the door  with your hand .  So, we have been used to cover the sensor for others when we pass the door.  We conscious to do that for others and we always receive a "thank you" or a grateful smile.  All of us to do that not only the young men but also old men and kids. We always don't  leave the door until all the people want to go in and out passed at the time,  and maybe we will cover the sensor one by one.  We communicate less and less even we live in the community or as neighbors in the morden world.  The door give us a chance to express our friendly with each other.  That alway make me happy and feel that I live in a good community.      I think it's a good thing for us although that maybe not safety enough to help "stranger" to enter in our community.

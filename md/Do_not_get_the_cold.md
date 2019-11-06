@@ -1,0 +1,7 @@
+---
+title: Do not get the cold
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+Just a couple of days ago, it was still warm so that mosquitoes and some cockroaches came out. I was impressed by their strong vitality. They live everywhere in any bad circumstance. As long as I see any of them, I try best eradicating it because I do not feel comfortable being with those uninvited guests.Since the rain, it is getting cold and more like winter. In the morning, on the way to the office, I saw leaves falling down, they overlapped and scattered on the ground. Leaves from poon, gingko and all deciduous trees are joining in that exhibition. Sooner or later, they are all gone and we can only see new leaves again next year.This kind of rain may last for several days till this weekend, after that, it will be sunny but cold. These days I choose not jogging around because it is muddy, rainy and windy outdoors. Indoors exercises are just right for this moment.Tomorrow I have to wear the overcoat since it is really becoming cold. According to the weather forecast, it will fall down below 10 degrees, even lower to be 3-4 degrees as  the minimum temperature on this weekend. I have to keep warm otherwise I am likely to catch a cold.

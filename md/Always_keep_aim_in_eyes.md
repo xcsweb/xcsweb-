@@ -1,0 +1,7 @@
+---
+title: Always keep aim in eyes
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+I can hardly understand the reason why I can not make my dream comes true all those years. You can say, yes, I am a loser. But I am never defeated. it has been ten years when the decision was made. I just follow everyday and seldom consider my aim, this time I will take a close look to what the problem is. Sometimes you need to look back so that you can adjust yourself of your journey.Where my problem is? I should absorb more knowledge since I don't have many privileges. But my time is limited, I must make my action fast. The problem is that I am lack of money, if I have much money, everything is easy. But make much money is not an easy thing.Obstacle are those frightful things when you take your eyes from your goals.How to make money?1.WritingI never see how it is worked you gain money when you write.2.WorkWorking is the most income source for most people, but you can never get more time and more money.3.entreprenurThis is the best way to get what you desired, but not for everybody, it has much risk when you win at the same time you fail. Howerver it is still need to be tried.4.stock marketIn China, the stock market also contains lots of risks, you'd better think twice before you decide to play.5. goods salesIf you play hard, you will perform well, and it is how many people earn money. But there is still many things you need to get to know, what is people's need, how you can server them well.

@@ -1,0 +1,7 @@
+---
+title: Los Angeles of 4 am
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+A reporter asked Kobe: Why you are so successful?Kobe asked back: Do you know Los Angeles morning four-points looks like?This is a famous story from Kobe, the NBA star, which has encouraged many people including me to fight for their own dream. Furthermore, his words not only express positive energy, but also provide us a reasonable explanation to his success. We could imagine that someone might ask himself: why haven’t you got such a success? The answer would be simple: Because I’m not working hard enough. God is fair who doesn’t give preference to anyone. That would be perfect if the story ends here.Unexpectedly, the wife of Kobe revealed: he just happens to wake up at 4 a.m. sometimes. All the naps during the day help. It immediately makes the story lost glory. Why? Because we expected that Kobe could get up at 4 a.m. every day. The habit like this would be legendary and distinctive, which could be more encouraging for us. But it is not reasonable!Normally, we could be free to get up early at even 4 a.m. when necessary, the same to the famous men. To keep an unsupportable habit mechanically is meaningless, which might be driven by kind of anxiety. In a sense, this mentality is from the toxicity of the soul chicken soup.As common people, I’m used to do some important things in early morning, even 3 a.m. if necessary. Because I find this is an efficient and healthy working method of avoiding staying up late. I know what the SH looks like at 4 a.m.

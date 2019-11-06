@@ -1,0 +1,7 @@
+---
+title: So bad
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+      These days, the morale was low and people were planning to leave the company outside for pursuing the new career including myself. During the past days, I felt unconformable, not only big pressure around me, but the inequality was growing. Furthermore, big boss lost his faith in our manager's performance even has the trend of replacing him, I though he certainly felt something a lot. Even our company failed to archive intended target last year and the big boos postponed the plan of paying rise, but, today still has released an announcement of one guy promotion from our department. It may issue a signal to our manager that he is on the edge of danger. As the nature of our manger, he could do nothing but waiting, after all, he has been in here for over ten years, he may never though leaving here one day. Actually, he could be a good friend, but he absolutely is not a good leader. I always though the organization of our company has big problems, because big boss involves detailed decision-making too much so that each manager of departments never has their own opinion but following up his instruction. Nowadays, everyone knows the current situation, but no one could bring this information to big boss. Of course, the big boss has their trusted subordinates, unfortunately, they are never from manufacturing but from finance and purchase department. In his mind, the manufacturing guys are always in the lowest rank in company. Is it so ridiculous?

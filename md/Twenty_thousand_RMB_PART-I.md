@@ -1,0 +1,7 @@
+---
+title: Twenty thousand RMB PART-I
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+Mama pulled me with one hand and a luggage with another hand left the home i have lived in for five years when her was 25 years old.three month later, my dad got married and gave birth to a boy. it is noly one street away from my grandma's home to dad's home, but he never come to see me again.i aways ask my mother: is my dad doesn't want us anymore?mama touched my head, with tears in her eyes to say: you have no father, only mother. I could see the hate in my mother's eyes, but i don't how to help her I used to hate my dad as well, for example, i met him on the road and call him, but he ignore me.i went his home to ask living expenses, but his wife kicked me out of house and say: don't blame your father for not giving you money, i give you once, your monther will make you come here everyday. you should blame your mother, at the time of the divorce she said she want to nothing .As I grow up day by day, i am not hate my dad like before, maybe cause this thing:his sun,my little bother had leukemia when he two years old. spent all their savings, even went to Shanghai hospital, but still did cure. finally died.at that time, everybody scold him in my town,  said he is the retribution.his wife always walked around on the street with barefoot and kept calling her son's name.at that time, i seems don't hate my dad anymore.

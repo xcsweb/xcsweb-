@@ -24,31 +24,38 @@ async function init(){
    await Promise.all(arr.map(async(item)=>{
       item.article=await getArticle(item.href);
    }));
-   arr.map((item)=>{
+   await Promise.all(arr.map(async(item)=>{
        if(item.article){
         let model=`---
-title: ${item.title}
+title: ${setTitle1(item.title)}
 date: 2019-11-03 21:11:00
 tags:
     learn english
 ---
-`;
-        console.log(item.title)
-            writeFile("./md/"+setTitle(item.title)+".md",model+item.article)
+`;      
+        // if(item.title.search("diary")>-1){
+        //     writeFile("./md/"+setTitle(item.title)+".md",model+item.article)
+        // }
+        await writeFile("./md/"+setTitle(item.title)+".md",model+item.article)
        }
-   })
-   if(arr.length===10){
-    page++;
-    init()
-   }
+   }));
+   page++;
+   console.log(page)
+   init()
    
 }
 function setTitle(title){
-    if(/\?$/.test(title)){
-        title=title.replace(/\?$/,"");
+    if(/(\:|\"|\'|\?|\.)/g.test(title)){
+        title=title.replace(/(\:|\"|\'|\?|\.)/g,"");
     }
     let result=title.replace(/\s/g,"_");
     return result;
+}
+function setTitle1(title){
+    if(/(\:|\"|\'|\?|\.)/g.test(title)){
+        title=title.replace(/(\:|\"|\'|\?|\.)/g,"");
+    }
+    return title;
 }
 async function getDom(url){
     let res = await superagent.req(url,'GET');
@@ -57,19 +64,17 @@ async function getDom(url){
 async function getArticle(href){
     let res= await getDom(href);
     let $ = cheerio.load(res);
-    return $("#blog_article").html();
+    return $("#blog_article").text();
 }
 async function writeFile(fileName,fileText){
-   
+   return new Promise((resolve,reject)=>{
     fs.writeFile(fileName, fileText,  function(err) {
         if (err) {
             return console.error(err);
         }
-        // console.log("数据写入成功！");
-        // console.log("--------我是分割线-------------")
-        // console.log("读取写入的数据！");
-        
+        resolve("")
      });
+   })
 }
 async function readFile(fileName,){
     return new Promise((resolve,reject)=>{

@@ -1,0 +1,7 @@
+---
+title: Get into career two years, i have $2 million in deposits[part I]
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+I was born in the countryside, parents are all farmer. almost more than two month can eat steamed bun once, even don't have money to buy clothes.at that time, the greatest hope is my family have a good health, the biggest dream is can be out of the countryside in the future.in order to can be out of the countryside, my parents workhard daily morning to evening. save money let me to study. other's parents buy food for him. my parents save money to pay my tuition. others buy televion, my parents save money to pay my tuition. others build new house, my parent save money to pay my tuition.Father has only one word, must study hard.i am really under my parents. they do this are good to me. so i am also study hard everyday, get up at 4:00AM, and sleep at 11PM. From primary school to junior school, and then to high school,  I'm at the top of my class. my teachers are also have a expectations to me.one year, i am in high school, my father went out to work. earn a lot money. but labour contractor didn't pay the money. They also hired people to beat the workers.From that day on, i decide enter to the banking industry when i grown up, so that i can control all of worker's account.(of course  i'm wrong after a grown up)Since then, I study harder and harder.

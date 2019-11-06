@@ -1,0 +1,7 @@
+---
+title: Wether is getting cold
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+    After several days unusual hot days, the temperature of today begins to return to usual even with big wind at the evening. It is just like today's audit that we called raiding inspection from customer, there are two non-conformance terms in our department, what's more, one of them has directly relation with me even it is not my responsibility, but, as usual, I should take the responsibility no matter how unfair it is. It is not a big deal regarding the non-conformance item, I think it is easy to correct it. But, as the nature of our boss, he can continue to talk it among daily meetings at least two weeks. Absolutely, my boss is actual a warmhearted guy except his short-temper and irresolute personality at every critical moment. In my mind, he always complained to us when he met some tough things even we were under his name. From my point of view, no matter how difficult he met, he did not to show us because we were all his subordinates. Because he just past us negative mood without any positive information and if he always demonstrated his kind of working style, it will cause our disgust in a way even cause doubt about his management skill. Anyway, I don't want to say something regrading my boss's disadvantage, I should think more his advantage, and then, we can work together happily.

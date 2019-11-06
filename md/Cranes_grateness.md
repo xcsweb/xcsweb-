@@ -1,0 +1,7 @@
+---
+title: Cranes grateness
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+鶴の恩返し昔々、貧乏で一人ですんでいる若い男がいました。long time age , there was a man who was young and poor冬になり、雪がたくさん降っていました。winter was coming , the snow covered all over the worldある日、深い雪の中を家に帰る途中、変な音が聞こえました。he came to home at a night which  snowed a lot , and he heard some strange voice.そのうめき声のような音がどこから来たのかを探しに、向こうの畑に行ってみました。鳴いている鶴を一羽見つけました。he looked for the road which sent the sounds , and he came to the field finally , saw a craneその鶴は、羽に矢をうけ鳴いていました。苦しんでいる鶴を助けようと思って、矢を抜いてやりました。that crane lost the wings and made a sad voice all the time , so the man wanted to help the crane助けられた鶴は空へ飛び立ちました。whatever , the crane flyed to the sky after the man's curenessそして、その男は家へ帰りました。then, that man came home一人暮らしの貧しい人なので、生活は寂しく苦しく、普段は誰もたずねてきません。he lived by himself , the life is poor and hard , so many words can not talk to othersしかしその夜、家の戸をとんとんとたたく音が聞こえました。one night , he heard that someone is knock his doorこんなに遅い時間の、深い雪の日に誰が家に来たのかと思って、戸をあけてびっくりしました。the time is so late , and huge snow fell , who would came ? and he opened the door and so surprised美しい娘が立っていて、道に迷いましたので、男の家に泊まらせてほしいと頼みました。the beautiful woman stood here , and she was lost her way , she wanted to have a rest in the man's house男は泊めてやりました。次の夜も娘は泊まらせてほしいと頼みました。また男は泊めてやりました。man allowed , and she wanted to have a other rest in his house , and man did soその次の夜も同じように娘は男の家に泊まりました。once and once 男はその美しい娘に女房になってほしくなって、夫婦になりました。二人は貧乏でしたが、幸せで明るい家庭でした。the man fxxked the woman , and they got married , although the life is poor , and they had a happy family

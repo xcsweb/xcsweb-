@@ -1,0 +1,7 @@
+---
+title: Big challenge with great difficulty
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+    I really felt big pressure during the past days, now, a big burden put on my shoulder that it may make my crazy, I have to try my best to adjust the quick rhythm, to be honest, I am not sure if I can hand this case from the beginning to mass production, but, I can be sure that I can't handle it by myself, it need a team work together, and if it can smoothly run into next stage depend on whether we have a good team spirit on the project. Everyone who involves in this project has common sense that the project is very important to our company. As to why the project transferred to my hand,because it occurred a very serious problem that already caused complaint from customer so that the boss took flanking tactics of changing other people instead. That's why I confused that it is an opportunity or a trap for me, if I can take care of this case, I may win applause, but, if I can't take care of this case, I will be bearing a bad reputation of poor ability. What's more, my main concern is if I am ready to take this responsibility especially if I can have enough ability of English skill to face foreign customer's question face to face. I know I lack experience on this respect.    Now, I am nervous and excited to meet a big challenge with great difficulty. I hope I can go through this rough period with colleagues' support. Fighting.

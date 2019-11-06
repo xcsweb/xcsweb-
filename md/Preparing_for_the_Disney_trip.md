@@ -1,0 +1,7 @@
+---
+title: Preparing for the Disney trip
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+      We will have a one day Disney trip this weekend for the company's travel.  I don't want to the Disney because it's crowed and strict rules.  But I considered that my son want to go there and signed up for the trip.       I learned that it's not easy to have the trip and a plan is necessary.  Which hot game will be participate in, how to get a snap pass, how to line up,  travel route, and how to get a lunch and dinner, because there was so many people waitting in the line for each game.  I don' t understand why they don't allow us to bring some food and the food in the Disney is so expensive.         The tickets and food are expensive for me ,  so I must take a good preparation for the trip.  I bring a bottle of water and a cup which is allowed, many little package of cookies,  a ham sausage and some small bread.  And I hidden some food in the corner of my bag in order to not be found and confiscated.  That's a terrible feeling that I just like a migrants. I just want to save some money. That's a important reason I don't like to the Disney trip.         I also take a SLR camera, batters, umbrella, chothes and other things in my bag which made my bag heavy. I doubt if I can't arrive most games with a heavy bag and my 6 years old son. But I think the heavy bag is needed for the trip.  I printed map with some hot game , canteen, plays location and schedule.         Now, I am ready. Hope it will be a happy trip.              

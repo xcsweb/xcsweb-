@@ -1,0 +1,7 @@
+---
+title: Tough time
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+    The next two weeks will be very busy for me, not only the next round of tryouts on the new project is scheduled from next Monday, but the customer from the new project will be on-site to monitor all processes. That means,we have to distract following up customer's topic that we can't fully concentrate on working, especially we are now shorthanded. What's more, the customer will stay here for nearly two weeks. Of course, we have to face customer on some critical topics especially some key parameters and specification, we would like to bring forward our suggestion on some unreasonable requirements and persuade customers to accept our suggestion from a professional perspective. That it is a direction we are looking for. To be honest, our customer is not a stubborn guy, if you can provide convincing evidence, he may accept our suggestion and feedback to headquarters as improvement. Strictly speaking, this time the customer comes to our company as visiting not audit, because, lots of things have not defined yet, both of them needs to reach an agreement to unify the process specification. Just because of this, we even invite an expert from headquarters to express our suggestion in order to be more convincing in front of customer.    Anyway, we hope this round of vising could be ended with happy way.

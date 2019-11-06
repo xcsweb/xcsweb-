@@ -1,0 +1,7 @@
+---
+title: doing without any asking
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+           After experiencing certain  strikes I was  sudenly aware of life ， what happened in the working or in the normorl life , which made me thought in simple way .  Perhaps the original life is simple indeed . However , the human race made it complicated.            One peaceful song can drive me in peacefull states  for a few days , I don't want to pay attention to any trivial  trouble . a book can also satisfied me for a whole day , after the reading , then I wrote something whatever had inspired me . listen to the music and try to sing the songs  within my enjoyful style , which is a bright happiness for me .  However , That did not mean I don't want to make any progress , I always get up at 4 clock then rush for the exam, which seems a little different that I don't care the results of the exam , although I believe I can pass    it  .        enjoy the life and espeically enjoy the peaceful time lonely , which is a special happy . spending time on cultivating myself and try to be the best situation in the life .   I got some words : You will be  in the statement what you have spent yourself in the situation .  If it is true , I will to be the peaceful style , and to be the elegant style . that it is me   

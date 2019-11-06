@@ -1,0 +1,7 @@
+---
+title: Timing List of Working Day
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+Whatever, I must travel across the city two times a day to go to work, making full use of common transport of the city. To avoid being late in morning, I rise about 6 o’clock a.m. and arrive in subway station in 6:45. Meanwhile, I usually do some preparation of the day such as washing up, picking up several belongings and buying breakfast, and after then walk to subway station in 15 minutes.The subway carries me to the station near the place of my job in 75 minutes. Another 30 minutes by bus finally takes me to the right place. The time of arriving is about 8:30 a.m. Since I got up, two and a half hours have passed.The working time from 8:30 to 16:30 of the day is often quite busy, with nearly no time of rest.In afternoon, it takes about 100 minutes in common transport, same as that of morning.As mentioned above, I spend more than 3 hours a day (equal to 200 minutes) in the journey of going to work and coming back home, not including overtime hours. For me, the 200 minutes seem like the water squeezed out of wetting sponge, and either to be used, or to be wasted for nothing. The question is how to use the time in common transport efficiently. I think about it every day. 

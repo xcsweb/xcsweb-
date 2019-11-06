@@ -1,0 +1,7 @@
+---
+title: Tough and busy time
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+    How time flies, it comes to the end of June. After this month, we will experience a very tough time especially for myself, currently, I am not sure how busy it will be, but I sure that the work overtime will become very common. What's more, before the busiest time is coming, there are still tons of tasks pending to deal with. Nowadays, I am already stuck in many tasks that I have any opportunities to go away. Sometimes, I feel I can't breathe well especially when arguing with our supervisor, at the angry moment, I really want to go away willfully, but I can't because I need this job for supporting myself before I get another job. Most of time, I am contradiction with our environment, on one hand, I am not happy with something around me, but I must show it's not what I care. ,On another hand, I have to lower my expectation to meet something even I disgust it.    All of these, just because I need adapt surrounding especially when I have no ability to change something. That means I am not enough stronger and I need become more powerful. Also I am not happy with myself, because something I should do well, in actually, I don't do well.I am not a freshman in working place even I think I am a little old man comparing with my colleagues, what things I need do or what thing I don't need do, it's clear for me now--

@@ -1,0 +1,7 @@
+---
+title: where is home
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+ I happened to find one of my previous colleague writing something about where is home? It looks like a little bit obscurity for the concept of home nowsday. As people went outside to look their fortune, most of us probably stayed much longer time outside than our familiar hometown. That is why we sometimes found it was hard to specify what is the really home in our heart. In my childhood time, I thought grandmother there, it was my home. As i lived and stayed at my grandparents' home for most of time during the year. Grandmother was getting old as time went by. When I found she was walking crippled and slowly, I could not get known to and  understood that grandmother were old at that time. It was almost ten years since grandmother passed away. The house is still there, but it is surely not called home in heart.  Parents are there, then whatever it could be called home, not matter it is the poorly bungalow or and luxury apartment. Home is the warmest place where you could act naturely, it is a place to soothe your pressure and sadness. Indeed, if there is a home you build in side of your heart, this home would be there to the eternal!

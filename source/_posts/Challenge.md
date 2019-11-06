@@ -1,0 +1,7 @@
+---
+title: Challenge
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+     During the past week, I was just like fighting without no-stop. I felt extremely exhausted, unfortunately, the terrible trend will be started from next Monday to Friday day again. I should have a good rest to deal with the following things. What's more, the customer will come to our plant with complaints. Some issues we need to discuss with customer which needs to provide the reasonable explanation. Currently, we have no idea regarding some issues, I don't know what will happen whether the customer will yell at us. Basically, it will not happen, but, we should do the worst preparation in advance. The customer just gave us the praise last week, but, today we received the complaint from customer quickly even we don't adapt ourselves accordingly. Anyway, the next week will be a tough week, basically, the big challenge is not how we handle these issues that customer took, is the how to balance the internal sources to solve these issues to make sure they don't occur during the next built. As most of guys knew in office, the relationship is complicated in our department even can't work on one case that's a really painful thing. Sometimes, as subordinate I really don't like working such atmosphere. But, the actual situation is like this, we have no power making it change, but to accept it. Once I have to coordinate resource internally. I will feel powerless, because it is really a difficult job.

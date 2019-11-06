@@ -1,0 +1,7 @@
+---
+title: Ways to accept
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+We will meet kinds of people in our life, but we never meet someone who meets all our requirements. At some point, we have to interact with people we don’t like. Maybe I can’t completely avoid one because they are a co-worker, a neighbour, or even a family member. Sometimes, we may say something we later regret or storming off in a temper, which usually can end badly.To get through the bad emotions we have to take some proactive measures and striving to keep an positive outlook. The longer you are around the person, the more irritated you are likely to become. We should keep encounter with short and sweet if they are just a common one. If you absolutely must be around the person, at least put some space between the two of you, and try to look at the situation from their perspective. Consider why the person acts the way that they do. Focus on the positive things and do something to help yourself feel better. If you love working out,go to the gym to get your mind off things. If you have friends who appreciate you, spend time with them to remind yourself of your self-worth. If you cannot change other people then change yourself.To live like an idiot, to work like a nut for myself in the new year. 

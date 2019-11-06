@@ -1,0 +1,7 @@
+---
+title: The first working day
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+    Today is the first working day after spring festival holidays, absolutely, it is a very busy day because of tons of emails waiting to deal with. One of emails comes from our American company made me shocked, it said that one expert will come to China supporting our new project at the end of this month. Of course, we plan to ask help from them before the spring festival and we suggest another expert who can really help us for this project. What's more, we are already contacted the expert in advance to make sure he is available at that time. But, the expert may visit our company that is not really what we expected one based on this email. I didn't know what happened during the past weeks, the ridiculous thing is the expert who is planning to visit our company at the end of this month and even asked booking lodging for him in advance. Nothing has decided, why was he so hurry? We even did not send the invitation letter to him, how can he have confidence to make sure we are happy about his support? To be honest, his presence means nothing, because we all know that he doesn't specialize in the field that we are really eager for support.     As a return, I immediately forward this email to related guys in company and try to correct this stupid mistake and push this case can quickly go back on the predetermined track and also what I should do is to pay close attention to this case.Hopefully, everything can go as plan

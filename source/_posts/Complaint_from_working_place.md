@@ -1,0 +1,7 @@
+---
+title: Complaint from working place
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+     After work, I have a dinner with one of my colleagues, he complained a lot about working over the dinning. Maybe everyone has their complaints more or less in working, my college complained that he recently suffered a lot from his superiors not only his direct superior, but indirect superior especially when a problem occurred, there is nobody standing up to support him even give him a knife from behind, he was eager to quit the job after shout at these guys who should be standing up for him, but they should not do that at the critical moment. But, he finally gave up the idea to quit the job at the end of this year because of real status not allowed him to do this, because he had a family to support and it was not easy allowing him do this decision hurriedly. So he had to swallow up by himself and could do nothing, what's more, it will be affected the final bonus to him. All things to him seemed like a tendency of negative so that he felt extremely upset. He just wanted to free his stress and dissatisfaction as outlet. Normally, everyone who involves into working place may face the similar situation in a way, when we have no capability to make changes, the only wise way is to endure it until you can change to fight back or seek a better way to escape that dilemma.

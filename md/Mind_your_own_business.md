@@ -1,0 +1,7 @@
+---
+title: Mind your own business
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+It definitely makes you crazy that you are surrounded with a group of people (usually they are your relatives) who are keeping inquiring, such as if you are seeing someone or not, if so, when you are going to get married. They also care about your occupation including how much you earn per month. They seem to be gossipers. They are also glad to keep questioning. This very scene happens in holidays, such as spring festival.For all intends and purposes, you feel sick of being in that situation. Out of courtesy, you have no choice but to cater to them by answering carefully and prudently. You pray such kind of a conversation could end as quickly as possible. If you are impatient to put up with that talk, on the opposite, it is quite likely to be finished up by responding them with resentment from your eyes.Unless you are permitted, you should never be involved in personal privacy. Otherwise your rude and impolite actions really let others think you are the person who are not supposed to be with. We are not in the old days. What we need to learn is to be understanding. Freedom is on the base of mutual respect, no one wants to be forced to do something that he or she is not willing to do. The pathetic thing is most guys do not realize it and even take it for granted.

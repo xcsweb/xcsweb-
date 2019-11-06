@@ -1,0 +1,7 @@
+---
+title: Last day in 2018
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+Today is 31st December, the last day in 2018. The snow stopped this morning and soon it melted out and the air is quite clean and cold. As always we smoothly say goodbye to the past and the new year comes in silence.This year, the domestic stock market is down by 25 precent. Many intvestors have suffered the loss. It does not stop, it may come back or coninute to fall down for a while. Anyway it will defintely go up. Though we do not know when the turning point it is, as ups and downs normally is the curve happens at any time we have to believe things are going to be okay.This year, we have met and experienced something. Something we did not expect, some other things we have already pictured. All those things are the best tutor to guide us to be more sensible. Not a thing could be independently occurring. Everything tiny litte thing goes to be part of life.When we look backward, everything vividly comes out in mind. This kind of treasure we have to store in the memory that one day it would be another story to recall. Everyone appears in life is someone that we can learn from him/her. Meanwhile, the journey just starts out at another beginning.Hello, 2019.

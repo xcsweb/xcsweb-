@@ -1,0 +1,7 @@
+---
+title: Audit from customer
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+    To be honest, it is a tough time to everyone one in company, because the stricter audit from our customer will start on Thursday this week, as big boss instructs no matter how many costs we take, we must pass this round of audit, not only because the business depression in automobile industry, but we already failed to pass this audit twice during the past two year. So this time, each owner of departments afford big pressure, even big boss said if some non-conformance customer audited, the owner of departments will take accountability accordingly. We all knew, it is an easy thing to find some non-conformance as long as customer wants especially in the production line. From my opinion, if we can successfully pass the audit will depend on customer whether is in a good mood in a way, I know it is offhand. But, I still think it could affect the final result. Actually, we already did lots of preparation from the high level to bottom in company, but I also believe that there are still a lot to improve. Some actions we did after customer audit were really to meet customer's hobbies. Maybe, it is all each manufacture factory facing after all our orders come from customer's demand.     Anyway, I hope the audit day could pass through quickly so that we can go back to normal.

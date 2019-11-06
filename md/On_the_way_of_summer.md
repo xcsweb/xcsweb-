@@ -1,0 +1,7 @@
+---
+title: On the way of summer
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+After a month's exercises, my abdominal muscles seem to be stronger though they do not show the six-packs too much. It is still a way for the training that I have to keep it on regular basis. Summer, it is the nice season to sweat. I can burn a lot fat during the running.On account of the typhoon, it cools and is not that bad. I do not use too much air condition. Usually, I turn it on before going to bed and then I turn it off when I sleep. Using too much air condition does not make me comfortable. The cool air dries the room and my throat is to be bad if I am with the cool air too long.I'd rather like this kind of moment. The Great Heat is halfway and one week later, according to the lunar calendar, the autumn is coming though it is still hot at that time. You will definitely sense that temperature will be different between both in the morning and evening and the daytime.How fast it is. The world cup ended and the French won again after twenty years as of 1998. And the scandal of fake vaccine raised the social anxiety of health and safety. So many things happened everyday. I only hope it get better. What else can I do? What can I do is to change by my hands in the heatwave. 

@@ -1,0 +1,7 @@
+---
+title: Job-hopping
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+    Job-hopping is always a constant topic especially at the end of every year, as usual, several colleagues will pursue their new career outside before the New Year of 2019. Of course, it is a good chance to find a new job after bonus collected in Jan, because, it can greatly minimize the loss after you join in a new company. To be frank, it struck me a little bit when I knew these colleagues would leave us, after all, we got together with each other for several years. I have to say, there are some unreasonable problems confused us a lot under current policy in company, unfortunately, the top management doesn't realize these even after the employees' representative bring the problems into the desk, our company is pretty small than other manufacturing, there are total one hundred and fifty employee, so the real top management is the general manager who would like to grab power in his hand closely, in a word, he would like to know everything happened around him. It causes the problem that the manager of each department dare not make any decisions without his permission. And the terrible problem caused is the managers have a few authorities in front of their subordinates so that the relationship is not harmonious between them.    I never expect this situation could be resolved completely, just follow up one of my colleagues said, if you can't adapt here working atmosphere, the best choice is to go away with any hesitation.

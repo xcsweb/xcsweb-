@@ -1,0 +1,7 @@
+---
+title: Half year
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+Section one:Pouring down, it is cool. Yesterday, it was too damp to breathe. Now it comes to be comfortable to feel free breath. The big rain, particularly in summer, is a nice way of test on the drainage system. Every city more or less has to confront this problem. The civilization based on the concrete construction has its disadvantage. Sometimes it is even more fragile than we have thought. Usually in hours of heavy rainfall, it will flood roads and streets. Engines of vehicles are likely to fail when it comes to pondings, traffic paralyzed and garbage washed into everywhere. Compared to the rain itself, the disaster of urban water logging afterwards is more severer and destructive.Section two:The second half year is about to begin. How fast it is. If there was no plan, life goes to be boring. Though so many things we have to deal with, it does not hamper us from pursuing happiness. A better tomorrow does not only rely on the material life, but also the quality in mental. To spare some time on something we like is just that way to improve our life. Reading, workout, diet and rest are the priority on my list. By insisting on it, I have found that I tend to be considerate. I am not easily to be impulsive, instead, I become reasonable and sane knowing how to steer the direction to life journey. That is totally different than what I was before. It teaches me and I appreciate it greatly.

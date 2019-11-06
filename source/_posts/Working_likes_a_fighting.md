@@ -1,0 +1,7 @@
+---
+title: Working likes a fighting
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+     I can have a good rest during the past week, but, I knew that I still have a lot of work to handle in the following months before the new year of 2019. According to current schedule, there will be three tryouts in the next three-month. The round of tryout will be scheduled at the end of this month, I believe it will be another tough time, I hope I can take care of it smoothly and do it better and better even I still have some problem with English in speaking and writing to communicate with customers. I know there is no shortcut for English level improved, but, I can get progress step by step.    Nowadays, I think I should quickly familiarize those requirements and specifications from customers, actually, I am not similar with that of it. It will cost more time to digest those content after work that means I can hardly have time to read the detailed content during daily work because of too many tasks occupy my working time, I need to well organize my working time if I don't want to work overtime. So every office hours just like a fighting, we should maintain a state of readiness to deal with all kinds of situations...

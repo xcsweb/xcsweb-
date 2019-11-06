@@ -1,0 +1,7 @@
+---
+title: Writing practice
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+The more use of computers and phones, the more likely we have weak ability of writing. Nowadays we just type characters by the input method which is usually referred as Pinyin. We do not have to memorize too much on each single character, we only need to know its pronunciation and then use pinyin to select the wanted character.This is quite convenient and makes us faster to input and edit. The side effect I argue is the lame writing. It implies most of us can not write well by the means of a pen or something like that. We are stuck if we want to write down some by hands. We may either forget the exact strokes or do not remember which character is the right one we should choose. Another downside  is the decline of writing. It means we do not write good looking characters because we do not touch a pen too long. What a bad experience when we are asked to fill in some forms by hands. If it is necessary we can spend some time doing the exercises. We do not have to be a calligrapher, we are just to be sure we can use a pen to write well in some occasions. During the practice, our minds clam down and to be more focused. At least it can help us escape from the overusing of electronic products. It is bad for eyes if we stare on a phone or a computer screen too long. It is time to free eyes.

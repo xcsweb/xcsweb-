@@ -1,0 +1,7 @@
+---
+title: Big Challenge
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+    Now, I felt big pressure on my shoulder, not only the work loading increased, but the new field of coating process is not my strength, actually, I know nothing about this process until now. To make my stressful is that if I failed to take this responsibility from my colleague, I could be fired at the end of this year that it is not what I expected. The reality is that I do not have so much energy to focus on this new process for me. Nowadays, I have millions of tasks on my hand that already makes me exhausted in a way, if adding more woke loading to me, I am not sure whether I can handle it under the control. I am wondering if it is the necessary stage to everybody who wants to get to the higher level in career. It is a big challenge to me that I suspect how long I could stick to under current working atmosphere. I also told myself I should insist on keeping this situation as long as possible until I totally get hold of knowledge in coating process. On the one hand, it is for skills improved for myself. On the other hand, I may get promotion if I can fully take this responsibility from positive view.    Sometimes, I have to comfort myself that continues to learn more, then you could have the opportunity of getting more in life.

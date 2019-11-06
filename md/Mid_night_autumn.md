@@ -1,0 +1,7 @@
+---
+title: Mid night autumn
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+This time, not cold nor hot, is just the right moment to enjoy. More tree leaves turn into red and yellow. More like autumn, I love this season. When books are finished, I sense myself reborn again. Meanwhile, I realise how time flies and how important the time it is which gives us the meaning of being in this world. It is like the fruit grows to be mature waiting for us to reap.The fine weather brings good sunshine. It comes in the morning and ends in the evening, has the beautiful scenery present to us. When twilight dominates the evening, golden lights become the fire shinning from the skyline. Wonderful. As I walked through the park, square dance was already on the show. Not just old ladies, aunts, but also some women at their mid age all joined in the dance. You never know where they are from. Probably they are neighbours from some living communities nearby. They are people come together to dance, in the park, alongside the bank of a river or in the open air in front of a supermarket. They are everywhere. The point is they have a ball.In the night, I am more available in the realm of my mind. I spend the time thinking of something, such as the plan of going somewhere, ways to find some nice books to read. Silence of night does not make me sleepy, I am to understand more than before about meditation. An inspiration all of a sudden runs into me, striking my nerve. I am powered again. I seize it and do it. You never know when will it come again.

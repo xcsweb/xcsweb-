@@ -1,0 +1,7 @@
+---
+title: Innovation and speed (2)
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+ 4. Then is the possible applications of AI in USI.   fist is product design. It include PCB design, PCBA design mold design and so on.  it alway takes a third or more times of a product development cycle.  Maybe the AI may help us to save more than 95% works in the future.    Material handing.  The main manufacture process was done by machine. But the material handing still handing by human.  The machine just do part of the inspection and testing work.  and people have to do the rest.  Following the AI technology development , more and more work will be done by machine.    The manufacturing execution systerm can link and control all the manufactur process. It can make the manufacture process quickly and efficient.5. How can individuals adapt to the AI era     most of current positions will be replace by the machines or software in the future. But , Some ability of human will not or never be surpassed in the near future. The ability include associative, creative, and logical thinking and emotional.   so we can do something to strenthen  the ability.    first, keep studying and improve our ability.     second, pay more attention  on the creative work than the repeating work.

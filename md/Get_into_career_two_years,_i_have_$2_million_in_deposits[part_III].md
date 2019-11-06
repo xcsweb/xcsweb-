@@ -1,0 +1,7 @@
+---
+title: Get into career two years, i have $2 million in deposits[part III]
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+After graduation, some students say the banks is too tired, so they changed profession. some of them decide to continue their studies. I firmly went to a state-owned bank, become a financial worker with honor.In the first half of the year, there is only basic salary per month. good thing is that lunch is free. due to i'm single. i can live in dormitory of bank.  I am very satisfied.as beginning, of course only be a counter.always be chid by leader. and always overtime. sometimes, leader don't ask me overtime, but i offered to work overtime.i want to learn something more, and want give leader a good impression.night by night, day by day. almost bank is my home. i always tell my mother on the phone, don't worry about me, i am a good bank employee. right now just is beginning. good day, good salary is coming soon. i will take care of the whole family.actually, one year passed, the money saved not enough to pay off my college student loans.i am very sad. At this rate, I don't think I'll ever fulfill my promise, let alone marry and have children! It's hard to get ahead in the banking system, i have to choose a good way

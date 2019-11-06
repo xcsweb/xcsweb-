@@ -1,0 +1,7 @@
+---
+title: Bring a cloth bag
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+It takes hundreds of years to degrade plastic molecues since this high-molecue compound is steady because of its chemical bond. Products of plastics are found everywhere and in many fields. They are used as shopping bags, packing materials. Besides, it used as parts and material from appliances and even in high-end technology field.We benefit from this material, meanwhile suffering the threat from its pollution. Since the long-time-degradation, it can not precisely predict what the exact time a plastic item is to totally degrade. Dumped plastics are scattered and located everywhere. Its trace rangs from the Everest to the Mariana Trench. Plastics can be found in stomaches from fish. Soaking in sea water too long, it degrades into water becoming plastic solution which contains high portion of its molecules. As a matter of fact, those molecules still remain the feature of plastics. The steady molecular structure guarantees its existence in a very long time.This pollution dysfunctions the ecosystem but humankind at present has no concrete and effective ways to solve this tough issue. At the top of food chains, we finally ask for it if there is still no method to tackle with it.As individuals, at least, there is something we can do to prevent it from worsening. Garbage classfication is to advocate in public.  To improve public awareness of environment protection is another priority. From now on, we must start it. We can bring a cloth bag to the supermarket.

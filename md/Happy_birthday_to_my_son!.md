@@ -1,0 +1,7 @@
+---
+title: Happy birthday to my son!
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+    How time flies!  It comes to July 15th,2019. My little son is already 2 years old  today. As a birthday gift, Grandfather buys him an electric motorcycle. He really likes it and he is happy today. To tell the truth, he is happy every day .        Suddenly I realize that happiness is a simple thing. In our daily life,we always worry about little things. It is a waste of our life to focus on what we have lost. We should always think of  what we have. So , I want to tell you ,my boy, your whole life would improve not just because of having a new car or getting something new. Remember that happiness is in your heart, it is a state of mind, Even though you own the whole world, you may still feel unhappy.         During the rosy years of childhood, I hope you can enjoy the  beautiful days. Because in the following days,  there is not always sunny days, you will face difficulties, troubles and challenges ,which are the treasures  in  your life.. Don't worry about it. That is what life really is. No matter how old you are, master the art of appreciating and taking pleasure in what you really have , Mother believes, happiness will always be with you!         At last , wish you a happy birthday! Have a good dream!                                                                                                 

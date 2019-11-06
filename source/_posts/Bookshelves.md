@@ -1,0 +1,7 @@
+---
+title: Bookshelves
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+As the collection of books, I have stored some ones, old and new, and with the version of Chinese and English from home and abroad. They range from ancient history to modern novels and other fields. And half of them are in the version of English. Because of work which occupies much of my time, I seldom own the time to read. But I still do it so long as I am available. I seize the fragments in all aspects of life. I do that between fragments in cooking, bathing, etc. Though I bought a kindle which is convenient to read at anywhere, I still have some paper based books which are now fully stored in two bookshelves.Every time, I sit in front of bookshelves, I admire by watching those books staying silently. They are alive and I can strongly feel their spirits when I look through pages. What a nice experience by admiring them, even I do not read just by sitting right there face to face.Recently, I gradually read more than I did before. And I feel it is necessary to do that systematically. In the process of learning and studying, acquiring knowledge and digesting the wisdom and finally absorbing them, I can be more intelligent and humble. I am only a drop of water in the ocean.It could be impossible to walk into a dead end if I sharpen eyes by means of reading. I have such a tense feeling which is stronger than any of my past life time. I should learn and never stop. I will consider buying one more bookshelf if more books are coming into the room.

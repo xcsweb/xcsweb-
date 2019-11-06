@@ -1,0 +1,7 @@
+---
+title: follow your inner wire
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+I used to collect notebooks. In fact, I went so far that it had become kind of obsession. Once I laid my eyes on one of those beautiful, fabulous notebooks, I just could tear my eyes off it until it had become mine.  Everything was great, except that one teen tiny little thing: My handwriting is terrible, which means, most of my collections are too good to make notes on so they were just lying silently in my desk.Then one day I suddenly realized that was wrong. Notebooks are supposed to be written things on. They have their own destiny to follow, their own responsibilities to take. So, I gave up this habit for good.  However, there is a little girl living inside my heart, who is still drooling over those beautiful notebooks and wants desperately to make a beautiful notebook of her own, no, not just the regular ones, but one of those journals, the kind as smart as a fashion magazine.  They say that embrace your inner wire, whatever that may be. So, finally I decide to follow this foible of mine down to those rabbit holes.Now Pandora’s box is open. It is true that moment you jumped into the pit of journal, you can kiss goodbye to your pocket.Before I even started to make one journal, I found myself already in the craze of shopping. And this time it’s not just notebook, but seals, stickers, washtapes, gel pens all wink at me sending the same message: “Buy me, I’m cute.”Oh, God, I’m doomed.

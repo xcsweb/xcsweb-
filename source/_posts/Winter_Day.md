@@ -1,0 +1,7 @@
+---
+title: Winter Day
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+When wiring already became a part of life and a sort of bread-winner, I also felt it could be used as a valve to release the overwhelming pressure in life. Those agony, worries and grief unconsciously seemed to varnish into thin air as I typing something. At present, I am turning the valve in the first freezing day of Beijing. Before I prepared to face the arrival of cold day, I unexpectedly got two following pictures from Rongcheng ,Shandong which allowed me to feel how different in winter between seaside city and Beijing. Among deep snow stands a lone pavilion, one is impossible to tell how far and vast the sea, and enjoy the grandeur of sea under blue sky. The only thing that penetrated  into the heart and eyes is endless gray and white. It sharpened the sense of cold and turned out into a coolness that crept upon my backbone, I had to leave the laptop and walk away for a while.     The picture furthermore set off a chilling weather and impressed us how different the sea in the summer and winter. In most cases, most people are obsessed with the landscape of sea under a summer day, but  noticed the sea in winter. I am sure, the picture would discourage most prospective tourists if it appeared on the portal website of tourism agency. 

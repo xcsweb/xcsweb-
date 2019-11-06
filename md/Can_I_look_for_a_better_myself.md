@@ -1,0 +1,7 @@
+---
+title: Can I look for a better myself
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+ Can I look for a better myself? I hate myself! I hate myself without putting enough effort to pursue what I want! I hate myself being easily giving up. I hate myself lose the passion for doing things. I hate myself without a clear aim and stick to it.  I don't have friends to talk and share the things.  That maybe one of the reasons why I can not relief from the pressue. It is panaroid!  Is it destiny for living a lonely life. Without loved one to care and nobody to care about self. It is such darknest life, is it worthwhile to live a life like this. What a shameful to myself. Like a deserted man.  Do I have capability to fight back? Do I weapon up myself so that I can defend the attack from the society. Time is cruel and fair for everyone. I can not blame the fate, society and others too. What I can blame is myself. Do I really have a try? Have a try to make the better life? I can not answer this question! I am not ready for answering it . I hope that this is not an excuse. I do not understand myself sometimes as what I said before.  Life is mysterious. Like a puzzle and wait to disclose.  Take a sigh and have a rest. Hopefully, do not lose the courage to continue the life journey for everyone  

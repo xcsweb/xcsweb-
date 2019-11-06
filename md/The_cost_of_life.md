@@ -1,0 +1,7 @@
+---
+title: The cost of life
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+We have to sacrifice something for the purpose of getting something better. We learn from both aging and experiencing. It if fair we are granted 24 hours everyday, while we perform differently from each other. It lies in the efficiency and perseverance. Besides we have to be sure what kind of a lifestyle we want to lead. In the process of approaching to the destination, generally, we are doomed to be accompanied with nobody. The longer the journey we cover, the fewer people we are liekly to talk with. We train to be sustainable and firm and persistent. We get to be wiser by thinking and judging personally. We are on the way to cope with uncertainties and get through difficulties.Not always we are going smoothly. Actually we are on a boat floating as waves move and ripple around. We realize it is common to accept the truth of uncetainties and ups and downs. Only can we do is to treat it peacefully as in a close friend. Though it has something we are not satisfied with, we never easily let a relationship go. We get to be mature by taking responsibility and acknowledging everything which once had done us a favour.After swallowing bitterness of life, we come to know the importance of happiness. By overcoming a myriad of troubles, we never feel timid, instead, we are brave enough to dispose of everything.

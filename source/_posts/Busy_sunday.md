@@ -1,0 +1,7 @@
+---
+title: Busy sunday
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+    It's been a pretty long time that I have no opportunity to sit in front of computer to write down something regarding my daily work. Actually, we are too busy focusing on the new project, based on period of one month work hare, I find there are many places where I need to further improve in the next working, it not only lack of experience accumulation, but lack of effective efficiency. Sometimes, I felt disappointed regarding my performance why I can't do a little better. To be frank, I am not a smart man during working and daily life even I am a little clumsy so that I am never strict with myself, because I don't want to push me a lot. Unfortunately, in real life, if I can't keep on going I will be in danger, because there are more and more young people will go ahead of you even one day they instead of my position if I continue to indulge in my own world.so I told myself today, I needed to make a change no matter what happens in the future, I need to learn something new. I really don't want to see, I can't find a new job if I left current position one day and also I hope I can make progress step by step from quantitative accumulation to qualitative leap someday.

@@ -1,0 +1,7 @@
+---
+title: What a mess
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+    I am on very bad mood, not only the big pressure around me but I am not happy with myself. In a word, I felt exhausted during the past two weeks, I can't find any happiness among daily working except tons of work surround me. Sometimes I would like to escape from the really life, but, I know I have no choice except accepting something, because I know I have enough power or capability to change something around me. Especially our company did a bad performance last year resulting in the shrinking welfare accordingly, what's more, we didn't pay raise until now that should be supposed to happen at the beginning of this year. The bad condition will continue to the end of this year, that's why someone wanted to ask for another opportunity outside. One of my colleagues submitted his resignation letter today, I believe that he has made final decision leaving here this time. I knew he was also not happy with working atmosphere here and didn't develop his strength in working so that he felt frustrated. I don't know, if he made a good choice for him, at least he gave him a try to pursue a new career outside. So I should congratulate him on his new job.    To be honest, I am a little reluctant to part with him because of good team work with him. I am not sure whether I can meet one guy who can replace him when he left company and can get along with him. Now, it is a big question for me.

@@ -1,0 +1,7 @@
+---
+title: Live well everyday
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+You can experience four seasons in a week, you can even have it in a day right here. The sudden and unpredictable change of weather really makes you no choice of the what the next step you could move. While in another way, it is the beauty of life to have this chance to view the picture of sunshine, rain, wind in a short time. It polishes your heart and trains your mind. Meanwhile it hardens your will to face everything in the trending of changing. Otherwise, you can hardly live peacefully because you are likely to be mad due to the constant weather changing. It is getting warmer. Trees and flowers are seizing the ideal moment to grow up. Cute buds of trees and flowers are telling people about the arrival of spring. Girls make fully of this time to have their colorful clothes in this wonderful season. They never miss this kind of a chance. That curvaceous figure naturally impresses you a lot at the noticeable moment. Usually after a night of rainfall, petals scatter to the land. Opening the window, you see them there as if they were saying MORNINIG to you. If you say hello to them you have the feedback of their honesty and innocence. Your have a good day with the company of their selflessness.

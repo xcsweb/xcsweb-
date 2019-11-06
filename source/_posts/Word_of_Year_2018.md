@@ -1,0 +1,7 @@
+---
+title: Word of Year 2018
+date: 2019-11-03 21:11:00
+tags:
+    learn english
+---
+While Oxford Dictionaries has chosen “toxic” as its word of year, I chose mine: “Learn”, selecting it from a short list that included such negative contenders as “Slipped Disc” “Midlife Crisis” and “Break down”. A TED speaker once said that you need something within your control and something could stay in your control when there were so many things that couldn’t. To me, it is learning. As an inseparable part of my life, it gives me routine and stability when I am dealing with so much uncertainty in life.  To say that I had a marked uptick in my English learning is incredibly soothing. But the word was chosen less for that than the sheer variety of results it has lead to, from my writing skills thanks to my daily karaoke, to my abilities of handling pressures, which I’ve learnt from the schoold of hard knocks, to my scope of the knowledge, that I’ve broaden from books, jobs, and even day-to-day life. Other words on the short list suggest that the year 2018 is one of the worst, while “learn” is the key that I have not beatened down by life. And now I have a strong feeling that next year’s winner would be something great, like “Success”, “Confidence” or “Lucky”.
