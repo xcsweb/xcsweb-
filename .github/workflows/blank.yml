@@ -27,7 +27,11 @@ jobs:
         run: create
 
       # Runs a set of commands using the runners shell
-      - name: cd public
-        run: |
-          echo Add other actions to build,
-          echo test, and deploy your project.
+      - name: push gh-pages
+        run: git subtree push --prefix=dist origin gh-pages
+
+      - name: switch gh-pages
+        run: git switch gh-pages
+
+      - name: pull gh-pages
+        run: git pull
